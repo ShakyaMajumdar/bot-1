@@ -1,1 +1,10 @@
-ᓚᘏᗢ 
+O F F I C I A L   M A S C O T   F O R   T H E   S U P R E M E   ᓚᘏᗢ
+O F F I C I A L   M A S C O T   F O R   T H E   S U P R E M E   ᓚᘏᗢ
+O F F I C I A L   M A S C O T   F O R   T H E   S U P R E M E   ᓚᘏᗢ
+O F F I C I A L   M A S C O T   F O R   T H E   S U P R E M E   ᓚᘏᗢ
+O F F I C I A L   M A S C O T   F O R   T H E   S U P R E M E   ᓚᘏᗢ
+O F F I C I A L   M A S C O T   F O R   T H E   S U P R E M E   ᓚᘏᗢ
+O F F I C I A L   M A S C O T   F O R   T H E   S U P R E M E   ᓚᘏᗢ
+O F F I C I A L   M A S C O T   F O R   T H E   S U P R E M E   ᓚᘏᗢ
+O F F I C I A L   M A S C O T   F O R   T H E   S U P R E M E   ᓚᘏᗢ
+O F F I C I A L   M A S C O T   F O R   T H E   S U P R E M E   ᓚᘏᗢ
